@@ -1,2 +1,2 @@
 # genotyped
-Bill Withers says, "Use me."
+Just helping you get to know me better.
